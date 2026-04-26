@@ -1,4 +1,4 @@
-
+hypershot Script secret offers the most advanced hypershot Script, with auto-collect and one-hit kill. Perfect for dominating any match.
 
 
 
